@@ -1,2 +1,2 @@
 # nataliaandreas
-Our weeding site
+Our wedding site
